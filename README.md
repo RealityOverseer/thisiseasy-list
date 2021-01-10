@@ -1,7 +1,9 @@
-## Welcome to GitHub Pages
+## Welcome to my ass
 
 
-1. Clone Repo
-2. Upload your itemlist.json and eventlist.json
+1. CShut the fuck up
+2. Update the shit
+3. ???
+4. Profit
 
 
